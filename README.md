@@ -7,9 +7,9 @@
 
 - 💬 Ask me about **C#, .Net, Javascript**
 
-- 📫 How to reach me **ujjawals0601@gmail.com**
+- 📫 How to reach me: <a href="ujjawals0601@gmail.com">**DM**</a>
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1J5vIGpKk2i6F8P46D-CGWVcSz4rMANcj/view?usp=drive_link] Resume
+- 📄 Know about my <a href="https://drive.google.com/file/d/1J5vIGpKk2i6F8P46D-CGWVcSz4rMANcj/view?usp=drive_link">experiences</a>
 
 - ⚡ Fun fact **I am mostly found singing.**
 
