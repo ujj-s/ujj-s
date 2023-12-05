@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ujjawals0601@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1J5vIGpKk2i6F8P46D-CGWVcSz4rMANcj/view?usp=drive_link](https://drive.google.com/file/d/1J5vIGpKk2i6F8P46D-CGWVcSz4rMANcj/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1J5vIGpKk2i6F8P46D-CGWVcSz4rMANcj/view?usp=drive_link] Resume
 
 - ⚡ Fun fact **I am mostly found singing.**
 
